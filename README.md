@@ -1,10 +1,10 @@
 # Lomo de Cerdo Con Salsa De Tres Frutos Rojos
-## Ingredients
+## Ingredientes
 
 ```
-1-1/4 tazas de moras frescas o congeladas (alrededor de 6 onzas), descongeladas y escurridas_
+1 1/4 tazas de moras frescas o congeladas (alrededor de 6 onzas), descongeladas y escurridas_
 
-1-1/4 tazas de frambuesas frescas o congeladas (alrededor de 6 onzas), descongeladas y escurridas_
+1 1/4 tazas de frambuesas frescas o congeladas (alrededor de 6 onzas), descongeladas y escurridas_
 
 1 taza de arándanos frescos o congelados (alrededor de 6 onzas), descongelados
 
