@@ -37,6 +37,14 @@ Cerdo:
 1/2 taza de caldo de pollo
 ```
 
+##Procedimiento
+
+ _1.- Coloca los primeros 5 ingredientes en un bol; revuelva ligeramente para combinar. Reserve 1 taza de mezcla de bayas para la salsa. Para la salsa, mezcle suavemente la cebolla, el jugo de limón, el cilantro y la sal en la mezcla restante; dejar reposar 30 minutos._
+
+_2.- Mientras tanto, espolvorea la carne de cerdo con sal y pimienta. En una sartén grande, caliente 1 cucharada de aceite a fuego medio-alto. Agregue la mitad de la carne de cerdo y cocine hasta que un termómetro insertado en la carne de cerdo indique 145°, de 2 a 4 minutos por cada lado. Retire de la sartén. Repita con el resto del cerdo y el aceite._
+
+
+
 ![Imagen sabrosa 1](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps60703_HC143213B07_16_10b_WEB-2.jpg?fit=700,1024 "Imagen Sabrosa 1")
 
 
