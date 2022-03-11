@@ -48,7 +48,15 @@ _3.- Si lo desea, enhebre arándanos en un trozo de 20 pulgadas. cuerda o hilo. 
 
 ## Información Nutricional
 ```
-1 costilla de cerdo con relleno: 404 calorías, 17 g de grasa (7 g de grasa saturada), 106 mg de colesterol, 314 mg de sodio, 16 g de carbohidratos (7 g de azúcar, 1 g de fibra), 45 g de proteína._
+1 costilla de cerdo con relleno: 404 calorías
+
+17 g de grasa (7 g de grasa saturada)
+
+106 mg de colesterol, 314 mg de sodio
+
+16 g de carbohidratos (7 g de azúcar, 1 g de fibra)
+
+45 g de proteína._
 ```
 
 
