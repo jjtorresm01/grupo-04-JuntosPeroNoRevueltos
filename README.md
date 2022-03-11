@@ -67,6 +67,6 @@ _3.- Si lo desea, enhebre arándanos en un trozo de 20 pulgadas. cuerda o hilo. 
 ![Imagen sabrosa 2](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps12505_CW10119C29A-4.jpg?fit=700,1024 "Imagen Sabrosa 2")
 =======
 
-Create by JuntosPeroNoRevueltos
+Created by JuntosPeroNoRevueltos
 
 ![Cocineros](https://github.com/jjtorresm01/grupo-04-JuntosPeroNoRevueltos/blob/main/cocineros.png "Cocineros") 
