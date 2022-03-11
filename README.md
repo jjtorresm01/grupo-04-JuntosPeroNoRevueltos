@@ -37,10 +37,10 @@ Cerdo:
 1/2 taza de caldo de pollo
 ```
 
-![Alt text](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps60703_HC143213B07_16_10b_WEB-2.jpg?fit=700,1024 "Imagen Sabrosa 1")
+![Imagen sabrosa 1](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps60703_HC143213B07_16_10b_WEB-2.jpg?fit=700,1024 "Imagen Sabrosa 1")
 
 
-![Alt text](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps12505_CW10119C29A-4.jpg?fit=700,1024 "Imagen Sabrosa 2")
+![Imagen sabrosa 2](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps12505_CW10119C29A-4.jpg?fit=700,1024 "Imagen Sabrosa 2")
 =======
 
 Create by JuntosPeroNoRevueltos
