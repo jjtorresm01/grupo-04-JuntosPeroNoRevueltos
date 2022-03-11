@@ -40,4 +40,4 @@ Cerdo:
 
 Create by JuntosPeroNoRevueltos
 
-![Cocineros](https://github.com/jjtorresm01/grupo-04-JuntosPeroNoRevueltos/blob/main/cocineros.jpg)
+![Cocineros](https://github.com/jjtorresm01/grupo-04-JuntosPeroNoRevueltos/blob/main/cocineros.png)
