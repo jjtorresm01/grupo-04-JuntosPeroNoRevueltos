@@ -37,7 +37,7 @@ Cerdo:
 1/2 taza de caldo de pollo
 ```
 
-##Procedimiento
+## Procedimiento
 
  _1.- Coloca los primeros 5 ingredientes en un bol; revuelva ligeramente para combinar. Reserve 1 taza de mezcla de bayas para la salsa. Para la salsa, mezcle suavemente la cebolla, el jugo de limón, el cilantro y la sal en la mezcla restante; dejar reposar 30 minutos._
 
