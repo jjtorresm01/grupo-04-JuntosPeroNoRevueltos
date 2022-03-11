@@ -43,6 +43,14 @@ Cerdo:
 
 _2.- Mientras tanto, espolvorea la carne de cerdo con sal y pimienta. En una sartén grande, caliente 1 cucharada de aceite a fuego medio-alto. Agregue la mitad de la carne de cerdo y cocine hasta que un termómetro insertado en la carne de cerdo indique 145°, de 2 a 4 minutos por cada lado. Retire de la sartén. Repita con el resto del cerdo y el aceite._
 
+_3.- Si lo desea, enhebre arándanos en un trozo de 20 pulgadas. cuerda o hilo. Transfiera el asado a una fuente para servir. Pase la cuerda de arándanos dentro y fuera de los extremos de las costillas. Cortar entre las costillas para servir._
+
+
+## Información Nutricional
+```
+1 costilla de cerdo con relleno: 404 calorías, 17 g de grasa (7 g de grasa saturada), 106 mg de colesterol, 314 mg de sodio, 16 g de carbohidratos (7 g de azúcar, 1 g de fibra), 45 g de proteína._
+```
+
 
 
 ![Imagen sabrosa 1](https://www.tasteofhome.com/wp-content/uploads/2018/01/exps60703_HC143213B07_16_10b_WEB-2.jpg?fit=700,1024 "Imagen Sabrosa 1")
